@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently Studying in SRM University Kattankulathur <br>🤝 I’m looking for help with companies <br>🌱 I’m currently learning 2nd year<br>
+🔭 I’m currently Studying in SRM University Kattankulathur <br>🤝 I’m looking for help with companies <br>🌱 I’m currently pursuing 2nd year<br>
 
 
 ## 🌐 Socials:
