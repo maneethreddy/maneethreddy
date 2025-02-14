@@ -1,4 +1,6 @@
-# 💫 About Me:Maneeth Reddy
+# 💫 About Me:
+Maneeth Reddy
+
 🔭 I’m currently Studying in SRM University Kattankulathur Chennai <br>🤝 I’m looking for help with companies <br>🌱 I’m currently pursuing 3rd year<br>
 
 
